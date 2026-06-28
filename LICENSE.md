@@ -1,4 +1,4 @@
-# 
+# Nuevo Soda PDF plantillas para Mac OS | Avanzado Soda PDF plantillas para PC Windows. Con cifrado de PDF y reconocimiento OCR — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
